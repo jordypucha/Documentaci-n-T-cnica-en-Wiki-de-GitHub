@@ -1,1 +1,1 @@
-# Entregable-1-Documentaci-n-T-cnica-en-Wiki-de-GitHub
+# Entregable-1-Documentación-Técnica-en-Wiki-de-GitHub
